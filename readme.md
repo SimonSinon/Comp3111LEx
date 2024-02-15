@@ -4,4 +4,4 @@
 
 I want teammates!!!!!!!!!
 
-![](/Users/salmonsmac/Desktop/Screenshot 2024-02-15 at 3.19.38 PM.png)
+![](https://ppt.cc/f80i7x)
